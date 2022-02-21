@@ -35,7 +35,7 @@
 
 ## # See how it works
 
-- 🤡 Usage_Training. [Click](https://t.me/M4nifest0/707) 
+- 🤡 Usage_Training. [Click](https://t.me/M4nifest0/710) 
 
 ## # Visit the following channels and sites for more training and tools:
 
